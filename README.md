@@ -15,3 +15,5 @@
 ![acc59ucoz_sergey3](https://github.com/user-attachments/assets/702188a0-2596-48c4-88da-307a0492fa4d)
 
 ![acc59ucoz_sergey2](https://github.com/user-attachments/assets/e81a007e-0938-4977-85c7-cd5e093b748b)
+
+https://www.reddit.com/r/Lostwave/comments/1bxmm12/a_deleted_version_of_i_know/
