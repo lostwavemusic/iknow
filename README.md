@@ -5,6 +5,9 @@
 ### 14 июля 2016 года
 - `квак).mp3` https://tunnel.ru/post-eshhe-s-tonnelya-mozhet-nashlos
 
+### 3 апреля 2017 года
+- https://klem.ru/forum/showthread.php?t=18012
+
 ### 4 апреля 2017 года
 - https://www.beatles.ru/postman/forum_messages.asp?forum_id=3&msg_id=27521
 
