@@ -1,5 +1,6 @@
 # iknow
-https://www.reddit.com/r/IKnowLostwave/new/
+- https://drive.google.com/drive/folders/1lTUw8RYslT_VhGdnpmANX3gbZ85s7cdj
+- https://www.reddit.com/r/IKnowLostwave/new/
 
 ![acc59 nm ru2007oct](https://github.com/user-attachments/assets/cc359b67-c3e9-47c6-a811-b7092693a7d7)
 
