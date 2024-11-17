@@ -10,6 +10,7 @@
 
 ### 4 апреля 2017 года
 - https://www.beatles.ru/postman/forum_messages.asp?forum_id=3&msg_id=27521
+- https://www.beatles.ru/postman/forum_messages.asp?cfrom=1&msg_id=27521&cpage=1&forum_id=3
 
 ![acc59 nm ru2007oct](https://github.com/user-attachments/assets/cc359b67-c3e9-47c6-a811-b7092693a7d7)
 
