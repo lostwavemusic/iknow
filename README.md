@@ -28,7 +28,7 @@
 
 https://www.reddit.com/r/Lostwave/comments/1bxmm12/a_deleted_version_of_i_know/
 
-<div align='center'><a href='https://www.websitecounterfree.com'><img src='https://www.websitecounterfree.com/c.php?d=9&id=66545&s=1' border='0' alt='Free Website Counter'></a><br / ><small><a href='https://www.websitecounterfree.com' title="Free Website Counter">Free Website Counter</a></small></div>
+<div align='center'><a href='https://www.websitecounterfree.com'><img src='https://www.websitecounterfree.com/c.php?d=9&id=66545&s=1' border='0' alt='Free Website Counter'></a><br / ><small></small></div>
 
 
 
